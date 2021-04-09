@@ -1,5 +1,5 @@
 
-### Hi I'm Matt Borowski, aspiring software developer! 👋
+### Hi I'm Matt Borowski, aspiring software developer! 
 
 
 ## I'm an abitious student of Polish-Japanese Academy of Information Technology 🖥️	 !!
